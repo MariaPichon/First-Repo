@@ -1,0 +1,1 @@
+This week was really interisting. I keep learning so much information about HTML and CSS and I'm very excited for the final outcome of our portfolios! Chapter03 has been tough but I think that withb a little more practice I will be able to understand it better.
